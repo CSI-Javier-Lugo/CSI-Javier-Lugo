@@ -1,12 +1,12 @@
 <div align="center">
 <img src="https://www.deliciosi.com/images/1200/1225/arroz-con-gandules.jpg" width="520" height="374" />
 
-#Manjares Navidenos
+# Manjares Navidenos
 
 
 
 
-##Arroz con gandules
+## Arroz con gandules
 
 </div>
 
