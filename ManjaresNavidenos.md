@@ -7,7 +7,7 @@
 ### ingredientes
 
 
-- **1** cucharada de aceite de olivia
+- 🫒**1** cucharada de aceite de olivia
 - **1/3** vaso de tocineta cortada
 - **1/3** vaso de sofrito
 - **3** vasos de agua
