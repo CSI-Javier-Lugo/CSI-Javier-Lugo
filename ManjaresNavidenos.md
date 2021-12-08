@@ -8,6 +8,7 @@
 
 ##Arroz con gandules
 
+</div>
 
 ### ingredientes
 
