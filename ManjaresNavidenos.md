@@ -1,4 +1,4 @@
 #Manjares Navidenos
 ##Arroz con gandules
 ### ingredientes
-- (los ingridentes)
+- arroz,gandules,sofrito,sazon,pasta de tomate,oregano,hojas de laurel
