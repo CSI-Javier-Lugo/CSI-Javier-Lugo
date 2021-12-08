@@ -10,7 +10,7 @@
 
 </div>
 
-### ingredientes
+### Ingredientes:
 
 
 - **1** cucharada de aceite de olivia
@@ -26,7 +26,7 @@
 - **15** onzas de gandules enjuagados
 
 
-### Procedimentos 
+### Procedimentos:
 
 
 1. Calienta tu caldero a calor mediano, añade tu aceite de olivia, tocineta y sofrito. Menear constantemente hasta que este oloros y suave, no quemado, como por 4 minutos.
@@ -35,9 +35,9 @@
 4. Cuando la mescla esta hierbiendo, añade el arroz. Mescla el arroz para que quede sumergido y distribuir los gandules durante el proceso.
 5. Cubre el caldero y deja que el arroz absorba todo el liquido visible. Cuando la mayoria de el liquido esta absorbado, mescla el arroz, y cubre otra vez. Baja el fuego a low y dejalo vaporarse por 20-25 minutos. Esta hecho cuando todo el liquido esta absorvido, y el grano esta cosido y esponjoso.
   
-### Video
+### Video:
   https://www.youtube.com/watch?v=Szwlp7zn7fk
   
-### Referencias
+### Referencias:
   
   https://www.delishdlites.com/recipe-index/holiday-recipes/arroz-con-gandules-puerto-rican-rice-with-pigeon-peas-recipe/
