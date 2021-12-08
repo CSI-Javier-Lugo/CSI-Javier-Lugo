@@ -18,3 +18,11 @@
 - **1/4** vaso de cilantro fresco
 - **2-3** hojas de laurel
 - **15** onzas de gandules enjuagados
+
+
+### Procedimentos 
+
+
+1. Calienta tu caldero a calor mediano, añade tu aceite de olivia, tocineta y sofrito. Menear constantemente hasta que este oloros y suave, no quemado, como por 4 minutos.
+2. Despues, añade el sazon, pasta de tomate y el caldo de pollo. Menea para combinar.
+3. 
